@@ -25,7 +25,7 @@ Besides, electric waste trucks are in the limelight as zero-emission diesel vehi
 
 
 
-Sample PDF Download-https://mobilityforesights.com/contact-us/?report=63151
+Sample PDF Download-[https://mobilityforesights.com/contact-us/?report=63151](url)
 
 
 
@@ -70,11 +70,11 @@ The European fuel cell refuse truck market will experience significant growth in
 
 
 
-Browse Full Market Research Report with TOC https://mobilityforesights.com/product/europe-fuel-cell-refuse-truck-market/
-
+Browse Full Market Research Report with TOC [https://mobilityforesights.com/product/europe-fuel-cell-refuse-truck-market/
+](url)
 # Find Trending Reports:
-India Truck Market https://mobilityforesights.com/product/india-truck-market/
-
+India Truck Market [https://mobilityforesights.com/product/india-truck-market/
+](url)
 
 # About Mobility Foresights,
 We are among the very few market research firms globally, specialised in mobility domain(s). Our zone of research entails automotive, aerospace, marine, locomotive, logistics and construction & agricultural equipment. We deal in syndicated research, custom research and consumer research for all the above domains mentioned.
