@@ -61,7 +61,7 @@ In the coming years, the heated and cooled cup holders market for the automotive
 
 
 
-Browse Full Market Research Report with TOChttps://mobilityforesights.com/product/automotive-heated-and-cooled-cup-holders-market/
+Browse Full Market Research Report with TOC https://mobilityforesights.com/product/automotive-heated-and-cooled-cup-holders-market/
 
 # Find Trending Reports:
 Global Lithium ION Battery Cell Holder Market https://mobilityforesights.com/product/lithium-ion-battery-cell-holder-market/
